@@ -14,3 +14,7 @@
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 
+꒰ ∘ Ｐｏｎｙ Ｔｏｗｎ
+
+— I'm always at Dandy's World area ! Sometimes at docks . I don't really talk much , i may be busy or I'm just nervous to interact lmao ! I really enjoy making new friends . 
+
