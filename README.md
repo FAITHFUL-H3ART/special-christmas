@@ -16,5 +16,5 @@
 
 ꒰ ∘ Ｐｏｎｙ Ｔｏｗｎ
 
-— I'm always at Dandy's World area ! Sometimes at docks . I don't really talk much , i may be busy or I'm just nervous to interact lmao ! I really enjoy making new friends . 
+— I'm always at Dandy's World area ! Sometimes at docks . I don't really talk much , i may be busy or I'm just nervous to interact lmao ! I really enjoy making new friends . I'm like — KINDA EVERYWHERE .. I don't attach my Github to my Pony Town it's because I CAN'T ATTACH IT , idk why it just loading forever . Soo , so you might find me at DW area ! 
 
