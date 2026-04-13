@@ -8,13 +8,13 @@
   
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 
-꒰ ∘ Ａｂｏｕｔ ｍｅ ! 
+꒰ Ａｂｏｕｔ ｍｅ ! 
 
 — Hello ! My name is Sofia / Pia , my pronouns is she / they . Lesbian ! I'm from the Philippines and my Birthday is June 13 . My hobbies are : Drawing , dancing , singing . I may be awkward at first but I'm pretty a cool person ! I ALWAYS joke alot hah , i'm very approachable ^_^ . 
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 
-꒰ ∘ Ｐｏｎｙ Ｔｏｗｎ
+꒰ Ｐｏｎｙ Ｔｏｗｎ
 
 — I'm always at Dandy's World area ! Sometimes at docks . I don't really talk much , i may be busy or I'm just nervous to interact lmao ! I really enjoy making new friends . I'm like — KINDA EVERYWHERE .. I don't attach my Github to my Pony Town it's because I CAN'T ATTACH IT , idk why it just loading forever . Soo , so you might find me at DW area ! 
 
